@@ -2,7 +2,7 @@
 
 🎓 Soon to be grad with a Master's Of Engineering in Computer Science. (May 2023)
 
-🇳🇵 Nepali, with a passion for learning new things and adding the X-factor in any place that I work at.
+🇳🇵 Nepali, with a passion for learning new things and who can be an asset.
 
 📚 Graduated from Vellore Institue of Technology with Bachelor of Technology in Information Technology. Learned a lot about different technologies, algorithms, and many programming languages. I got to do a lot of class projects individually and in a group. These all experiences taught me how to handle pressure at tough times and find an optimal way to solve a problem.
 
